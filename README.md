@@ -1,5 +1,5 @@
-### Hi there 👋
-- 🔭   - 🌱   - 👯   - 🤔 
+### Hi there 
+- 🔭    🌱    👯    🤔 
 
 ### Support
 * * * iosuppor@gmail.com
