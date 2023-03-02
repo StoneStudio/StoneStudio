@@ -3,5 +3,5 @@
 
 
 ### Support
-* * * iosuppor@gmail.com
+* iosuppor@gmail.com
 
